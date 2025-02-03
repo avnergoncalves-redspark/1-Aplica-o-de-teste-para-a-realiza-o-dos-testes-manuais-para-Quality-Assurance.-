@@ -1,0 +1,1 @@
+# 1-Aplica-o-de-teste-para-a-realiza-o-dos-testes-manuais-para-Quality-Assurance.-
